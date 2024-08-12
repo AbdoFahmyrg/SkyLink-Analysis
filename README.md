@@ -35,3 +35,27 @@ Deliverables
 
 ### Data visualization And Dashboard
 
+![01](https://github.com/user-attachments/assets/088a7934-bc79-483b-b362-278b5311209a)
+
+![02](https://github.com/user-attachments/assets/07efebba-2761-4f3a-b49c-da219c7d1eac)
+
+![03](https://github.com/user-attachments/assets/4d92c5ba-b5bf-48dd-8cba-b5630423b52f)
+
+![04](https://github.com/user-attachments/assets/690fbad3-aed0-47b0-ad80-14a2d7ae7d63)
+
+![05](https://github.com/user-attachments/assets/14c5903f-14c4-4fab-913d-64508c9863ba)
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
